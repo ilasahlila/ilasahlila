@@ -3,7 +3,7 @@ I'm ILA, student at the Muhammadiyah Cirebon University, starting to look for a 
 
 I am pleased learn new things and have good communication skills. Disciplined, capable cooperate and actively coordinate with the team.
 
-Let's connect or you can reach me out to ilasahlila40@gmail.com or https://www.linkedin.com/in/ilasahlila/
+You can reach me out to ilasahlila40@gmail.com or https://www.linkedin.com/in/ilasahlila/
 <!--
 **ilasahlila/ilasahlila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
