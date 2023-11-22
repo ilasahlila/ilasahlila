@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm ILA, student at the Muhammadiyah University of Cirebon, starting to look for a role in the technology, information and media industries.
+I'm ILA, student at the Muhammadiyah Cirebon University, starting to look for a role in the technology, information and media industries.
 
 I am pleased learn new things and have good communication skills. Disciplined, capable cooperate and actively coordinate with the team.
 
